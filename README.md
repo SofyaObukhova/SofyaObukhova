@@ -1,4 +1,4 @@
-🧑 18 years old
+🧑 18 years  old
 🖥️ I am currently working as a math tutor for graduate and elementary school students
 📫 How to contact me: obukhova_sofya@inbox.ru
 👅 Languages: Russian (native), English (B1)
